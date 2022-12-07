@@ -1,0 +1,1 @@
+# skripsi-luthfi-penyusutan
